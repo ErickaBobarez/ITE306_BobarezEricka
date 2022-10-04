@@ -1,1 +1,1 @@
-# Ericka-Bobarez
+Bobarez, Ericka S. (ITE306)
